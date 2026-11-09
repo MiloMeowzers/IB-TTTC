@@ -1,4 +1,4 @@
-# Death and the Maiden – IB EALL Paper 2 guide
+# The Things They Carried – IB EALL Paper 2 guide
 
 Revision guide for IB English A: Language and Literature, Paper 2 (comparative essay).
 
